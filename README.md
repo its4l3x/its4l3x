@@ -3,6 +3,7 @@
 I'm a Programmer for TypeScript, JavaScript and C#. Mainly Backend Applications
 I'm also Project Leader of Cloud Infrastructure especially for Azure Infrastructure.
 
-I am also doing a lot of Freelancing. If you are interessted, please hit me Up!
+Additionally i'm doing a lot of Light and Sound for Partys & more.
+I'm also doing Freelancing. So if you are interessted- hit me up!
 
 
